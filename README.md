@@ -13,7 +13,7 @@
 # Langkah Ke Enam
 ![Screenshot_2020-01-05-10-31-10](https://user-images.githubusercontent.com/41493567/71774783-6a702600-2fa7-11ea-8e3c-52e8959408f3.png)
 # Langkah Ke Tujuh
-![Screenshot_2020-01-05-10-33-53](https://user-images.githubusercontent.com/41493567/71774787-76f47e80-2fa7-11ea-91fa-c463a31f6954.png)
+![IMG_20200105_160728_341](https://user-images.githubusercontent.com/41493567/71777671-aae69880-2fd5-11ea-82ce-173e0687da1f.JPG)
 
 # Jika sudah kalian tinggal klik back lalu kalian download deh user&pass nya Terus kalian buka lewat aplikasi adober reader atau aplikasinyang suport buat membuka file pdf soalnya user&pass nya bentuk nya pdf
 
