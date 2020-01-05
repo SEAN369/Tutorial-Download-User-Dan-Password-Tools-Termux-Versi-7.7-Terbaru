@@ -1,3 +1,5 @@
-# Tutorial Cara Download User&Pass nya
+# Langkah Pertama Silahkan masuk lewat Google Crom
+# Lalu Jika sudah kalian klik ini
+
 
 
